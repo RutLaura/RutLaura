@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RutLaura
-- 👀 I’m interested in Marketing, Music, and Movie
+- 👀 I’m interested in Marketing, Music, and Social Media
 - 🌱 I’m currently learning Marketing, AI, Data Science
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me @RutLaura
